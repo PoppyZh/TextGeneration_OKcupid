@@ -32,4 +32,4 @@ Generated Text ( just some examples here ) :
 
 > i'm a native bostonian who went nomadic lifestyle, i've been in sf for almost 4 years. i'm a city boy who can be described as an open and new exciting friend groups. i'm easy to talk to a good conversation with good people, preferably, a great listener / sense of humor. i've livedin the bay area since most of the us, and i'm glad to be able to go to concerts. i'm a smart, easy - going guy, and a very good person. i like to have a good timewith drinks and going - - out exploring the beach.
 
- ## See a girl or guy you want to message? I can give you my text generator's phone number!!
+ ## Looks pretty date-able right? 
